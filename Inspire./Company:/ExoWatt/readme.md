@@ -1,0 +1,1 @@
+- [Solar Energy is Changing: No Panels, No Lithium Batteries](https://youtu.be/ug7B0OtoX3Q)
